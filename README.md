@@ -23,4 +23,4 @@ I'm passionate about bridging the gap between Business and Technology. Currently
 ---
 
 ### 📫 Let's Connect!
-[LinkedIn](https://www.linkedin.com/in/haneen-moamen-kamal-36697b2bb)
+[LinkedIn](https://www.linkedin.com/in/haneen-moamen-89350439b?utm_source=share_via&utm_content=profile&utm_medium=member_android)
